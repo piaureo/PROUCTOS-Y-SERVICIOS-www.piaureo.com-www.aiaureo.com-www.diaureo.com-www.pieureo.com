@@ -1,5 +1,7 @@
 ![PROUCTOS Y SERVICIOS www.piaureo.com www.aiaureo.com www.diaureo.com www.pieureo.com](https://raw.githubusercontent.com/piaureo/PROUCTOS-Y-SERVICIOS-www.piaureo.com-www.aiaureo.com-www.diaureo.com-www.pieureo.com/main/Free-One-Click-Direct-Download-File-Hosting-Sites-and-Services-930x620.png)
 
+https://github.com/piaureo/PROUCTOS-Y-SERVICIOS-www.piaureo.com-www.aiaureo.com-www.diaureo.com-www.pieureo.com/blob/main/LA-MALA-SUERTE-Y-LA-BUENA-SUERTE-EL-GUION-EL-KARMA-TARDA-PERO-LLEGA-TODO-SE-DEVUELVE-LA-PRIORIDAD-MAGIA-MALA-MAGIA-BONITA.pdf
+
 https://mega.nz/folder/vwwVCB5Y#gPTrf7rtusQjcJzVvY5JzA
 
 https://mega.nz/folder/e1BmiJiI#Fv7KDMFpLcizoIE9x-9uoQ
