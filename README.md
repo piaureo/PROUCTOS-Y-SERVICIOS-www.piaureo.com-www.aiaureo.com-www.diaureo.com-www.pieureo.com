@@ -14,15 +14,21 @@ POR FAVOR CRÉANME, NO MANIPULEN Y JUEGUEN CON ESTO, SE LES GRABARA EN SU CEREBR
 ESTO LO ANALIZARE AYER Y ANTES DE AYER PARA COMPRENDELO MAÑANA O PASADO MAÑANA PARA ASÍ DARME CUENTA HOY. HAY COSAS QUE SE PERO NO QUIERO SABER
 
 Para educar game: https://mega.nz/folder/6wZnwTha#bhfRPcfjVMqCqB6rrom6tw
+
 Para educar game: https://mega.nz/folder/6wZnwTha#bhfRPcfjVMqCqB6rrom6tw
+
 Para educar game: https://mega.nz/folder/6wZnwTha#bhfRPcfjVMqCqB6rrom6tw
 
 Para educar game: https://mega.nz/folder/e1BmiJiI#Fv7KDMFpLcizoIE9x-9uoQ
+
 Para educar game: https://mega.nz/folder/e1BmiJiI#Fv7KDMFpLcizoIE9x-9uoQ
+
 Para educar game: https://mega.nz/folder/e1BmiJiI#Fv7KDMFpLcizoIE9x-9uoQ
 
 https://github.com/piaureo/
+
 https://mega.nz/folder/6wZnwTha#bhfRPcfjVMqCqB6rrom6tw
+
 https://mega.nz/folder/e1BmiJiI#Fv7KDMFpLcizoIE9x-9uoQ
 
 TENGO QUE HACER TODO YO CHUPENLO MALDITOS MALDITAS NO SE PROGRAMAR SON LA MIERDA DEL MUNDO AYUDAME A AYUDARTE
@@ -42,6 +48,8 @@ Para educar game:
 https://mega.nz/folder/6wZnwTha#bhfRPcfjVMqCqB6rrom6tw
 
 https://mega.nz/folder/e1BmiJiI#Fv7KDMFpLcizoIE9x-9uoQ
+
+![PROUCTOS Y SERVICIOS www.piaureo.com www.aiaureo.com www.diaureo.com www.pieureo.com](https://i.postimg.cc/0yK2mhr7/Video-La-UE-lanza-su-primer-Banco-de-Hidr-Ogeno.png)
 
 ![PROUCTOS Y SERVICIOS www.piaureo.com www.aiaureo.com www.diaureo.com www.pieureo.com](https://i.postimg.cc/hGgWdtP6/EMANCIPEN-A-ALAN-ALDO-NU-EZ-DALLETO-MALDITOS-MALDITAS-BASTARD-S.png)
 
