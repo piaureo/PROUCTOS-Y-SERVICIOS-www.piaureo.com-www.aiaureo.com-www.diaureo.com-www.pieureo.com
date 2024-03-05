@@ -9,6 +9,151 @@ https://mega.nz/folder/e1BmiJiI#Fv7KDMFpLcizoIE9x-9uoQ
 https://mega.nz/folder/6wZnwTha#bhfRPcfjVMqCqB6rrom6tw
 
 
+POR FAVOR CRÉANME, NO MANIPULEN Y JUEGUEN CON ESTO, SE LES GRABARA EN SU CEREBRO PARA TOOODA LA VIDAAA SI MANIPULAN O JUEGAN CON LAS NEURONAS PiD + C APRENDÍ MATEMÁTICAS CON UNA HISTORIA BONITA, NO JUEGO CON ESTO.
+
+ESTO LO ANALIZARE AYER Y ANTES DE AYER PARA COMPRENDELO MAÑANA O PASADO MAÑANA PARA ASÍ DARME CUENTA HOY. HAY COSAS QUE SE PERO NO QUIERO SABER
+
+Para educar game: https://mega.nz/folder/6wZnwTha#bhfRPcfjVMqCqB6rrom6tw
+Para educar game: https://mega.nz/folder/6wZnwTha#bhfRPcfjVMqCqB6rrom6tw
+Para educar game: https://mega.nz/folder/6wZnwTha#bhfRPcfjVMqCqB6rrom6tw
+
+Para educar game: https://mega.nz/folder/e1BmiJiI#Fv7KDMFpLcizoIE9x-9uoQ
+Para educar game: https://mega.nz/folder/e1BmiJiI#Fv7KDMFpLcizoIE9x-9uoQ
+Para educar game: https://mega.nz/folder/e1BmiJiI#Fv7KDMFpLcizoIE9x-9uoQ
+
+https://github.com/piaureo/
+https://mega.nz/folder/6wZnwTha#bhfRPcfjVMqCqB6rrom6tw
+https://mega.nz/folder/e1BmiJiI#Fv7KDMFpLcizoIE9x-9uoQ
+
+TENGO QUE HACER TODO YO CHUPENLO MALDITOS MALDITAS NO SE PROGRAMAR SON LA MIERDA DEL MUNDO AYUDAME A AYUDARTE
+
+https://aiaureo.com/phpbb/
+
+https://aiaureo.com/phpbb/viewtopic.php?t=45
+
+https://aiaureo.com/phpbb/viewtopic.php?p=63
+
+https://aiaureo.com/phpbb/viewtopic.php?p=97
+
+PAYASOS PAYASAS GOLLUM SANGUIJUELAS SADICOS SADICAS MAQUEAVELICOS MAQUEAVELICAS ETC LOS LAS ARTISTAS GENOCIDAS QUE LOS/LAS QUEMEN A Y QUEDEN VIVOS YA QUE SON FANATICOS DEL SUFRIMIENTO LES ENTREGA PLACER TODO TIPO DE SUFRIMIENTO PARA QUE NO DUELA SON RATONES Y NOS TRATAN COMO RATONES NOS MANIPULAN COMO MONOS TODOS LOS DIAS POR DECADAS
+
+Para educar game:
+
+https://mega.nz/folder/6wZnwTha#bhfRPcfjVMqCqB6rrom6tw
+
+https://mega.nz/folder/e1BmiJiI#Fv7KDMFpLcizoIE9x-9uoQ
+
+![PROUCTOS Y SERVICIOS www.piaureo.com www.aiaureo.com www.diaureo.com www.pieureo.com](https://i.postimg.cc/hGgWdtP6/EMANCIPEN-A-ALAN-ALDO-NU-EZ-DALLETO-MALDITOS-MALDITAS-BASTARD-S.png)
+
+![PROUCTOS Y SERVICIOS www.piaureo.com www.aiaureo.com www.diaureo.com www.pieureo.com](https://i.postimg.cc/Yky54Jjz/ROBAR-LEGALMENTE-CUALQUIER-GANANCIA-POR-CUALQUIER-MEDIO-A-CHILE-ASTA-QUE-NO-EMANCIPEN-A-ALAN-ALDO-NU.jpg)
+
+![PROUCTOS Y SERVICIOS www.piaureo.com www.aiaureo.com www.diaureo.com www.pieureo.com](https://i.postimg.cc/8NPw9YYh/GRATIS-891-www-pieureo-com-www-aiaureo-com-Carnet-Alan-Aldo-Nunez-Dalleto-www-piaureo-com-www-aiaure.jpg) 
+
+![PROUCTOS Y SERVICIOS www.piaureo.com www.aiaureo.com www.diaureo.com www.pieureo.com](https://i.postimg.cc/pVdHwTSK/Holy-www-pieureo-com-www-aiaureo-com-www-diaureo-com-www-piaureo-com.jpg)
+
+Para educar game: https://mega.nz/folder/e1BmiJiI#Fv7KDMFpLcizoIE9x-9uoQ
+Para educar game: https://mega.nz/folder/e1BmiJiI#Fv7KDMFpLcizoIE9x-9uoQ
+Para educar game: https://mega.nz/folder/e1BmiJiI#Fv7KDMFpLcizoIE9x-9uoQ
+
+Para educar game: https://mega.nz/folder/6wZnwTha#bhfRPcfjVMqCqB6rrom6tw
+Para educar game: https://mega.nz/folder/6wZnwTha#bhfRPcfjVMqCqB6rrom6tw
+Para educar game: https://mega.nz/folder/6wZnwTha#bhfRPcfjVMqCqB6rrom6tw
+
+
+
+ESTO ES ANTIGNORANTES VIVO DE ALLEGADO EN UNA PIEZA EN PASAJE LOS HUILLES #256 PORTAL ANDINO COLINA SANTIAGO DE CHILE
+
+1° LOS RATONES "PERSONAS" APRENDIERON ECONOMÍA PSICOLOGÍA INTELIGENCIA ARTIFICIAL, GENOSEOLOGIA, ETC CON LO ESCRITO EN UNA PUERTA ADEMAS CON LAS PUBLICACIONES EN RRSS Y ESTE SITIO WEB. SE CERTIFICAN CON DOCUMENTOS EMITIDOS POR INSTITUCIONES CERTIFICACIÓN O MINISTROS DE FE NOTARIOS MÉDICOS Y CUALQUIER INVOLUCRADO EN EL TEMA.
+
+2° DEBEN COMPROBAR QUE NUNCA HE TENIDO NINGÚN TIPO DE ENFERMEDAD PSICOLÓGICA PSIQUIÁTRICA O CUALQUIERA QUE MANTENGA TORTURADA DOMINADA A UNA PERSONA POR GUSTO PLACER ETC. CON DOCUMENTOS CERTIFICADO ANTE MINISTRO DE FE Y NOTARIOS MÉDICOS Y CUALQUIER INVOLUCRADO EN EL TEMA.
+
+3° DEBEN COMPROBAR TODA LA TORTURA DE TODOS LOS MODOS POSIBLE REALIZADAS A MI PERSONA ALAN ALDO NUÑEZ DALLETO RUT: 16.299.830-7 Y CONJUNTAMENTE TODO LO QUE HAN REALIZADO PARA MANCHAR MI IMAGEN COMO PERSONA, SER HUMANO, INTEGRIDAD FÍSICA SÍQUICA Y TODAS LAS ARISTAS QUE CORRESPONDEN. CON DOCUMENTOS CERTIFICADO ANTE MINISTRO DE FE Y NOTARIOS MÉDICOS Y CUALQUIER INVOLUCRADO EN EL TEMA.
+
+4° DEBEN COMPROBAR CUANDO DINERO HAN GANADO EN CHILE Y CUANTO HAN LUCRADO CON MIS IDEAS SEÑALADAS EN EL PUNTO NUMERO 1° CON DOCUMENTOS CERTIFICADO ANTE MINISTRO DE FE Y NOTARIOS MÉDICOS Y CUALQUIER INVOLUCRADO EN EL TEMA.
+
+5° DEBO YO ALAN ALDO NUÑEZ DALLETO RUT: 16.299.830-7 ESTAR EMANCIPADO DE MIS FAMILIARES Y DEL PAÍS EN EL CUAL RESIDO CHILE CON DOCUMENTOS CERTIFICADO ANTE MINISTRO DE FE Y NOTARIOS MÉDICOS Y CUALQUIER INVOLUCRADO EN EL TEMA.
+
+6° DEBEN DEVOLVER LO LUCRADO GANADO EN TÉRMINOS MONETARIOS ECONÓMICOS Y OTROS SIN MI CONSENTIMIENTO Y DE TODAS LAS FORMAS POSIBLE A MI PERSONA ALAN ALDO NUÑEZ DALLETO RUT: 16.299.830-7. YO ALAN ALDO NUÑEZ DALLETO NO SOY SU ESCLAVO.
+
+7° TODOS ESTOS DOCUMENTOS LEGALES Y LOS QUE SE ESTIMAN NECESARIOS DEBEN ESTAR EN MIS MANOS, EN MI PODER. Y A NOMBRE DE ALAN ALDO NUÑEZ DALLETO RUT: 16.299.830-7
+
+8° NO DEBEN DEPENDER EN NINGÚN TERMINO DE MI PERSONA ALAN ALDO NUÑEZ DALLETO RUT: 16.299.830-7, DEBO SER UNA PERSONA INDEPENDIENTE EN TODO ÁMBITO, EMANCIPADO EN TODO ÁMBITO PARA QUE NO PUEDAN RECLAMAR POR NINGÚN MEDIO ALGUNO ALGÚN TIPO DE PROPIEDAD SOBRE MI PERSONA ALAN ALDO NUÑEZ DALLETO RUT: 16.299.830-7 MI HISTORIA DE VIDA. MIS DOMINIOS WEB INSCRITOS A MI NOMBRE ALAN ALDO NUÑEZ DALLETO RUT: 16.299.830-7 NACIONALES O INTERNACIONALES. NO SOY LA LUNA, NO ME VOY A IR A VIVIR A AL PLANETA MARTE.
+
+9° MI CUERPO ES MIO, MI CEREBRO ES MIO, MI CORAZÓN ES MIO, EL AUTOMÓVIL ES MIO, EL PERRO ES MIO, LOS DOMINIOS WEB SON MIOS, NO DEBO TENER NINGÚN TIPO DE PROPIETARIO. ESTO SIGNIFICA EMANCIPADO INDEPENDIENTE COMO SE SEÑALO EN LOS PUNTOS ANTERIORES Y SIGUIENTES CON DOCUMENTOS CERTIFICADO ANTE MINISTRO DE FE Y NOTARIOS MÉDICOS Y CUALQUIER INVOLUCRADO EN EL TEMA.
+
+10° REALICE ARTO, MUCHO MARKETING A CHILE GRATUITAMENTE CON MIS IGNORANTES RECURSOS PROPIOS Y ADEMAS LOS AYUDE DE TODAS LAS FORMAS POSIBLES. NO PUEDEN DEPENDER DE MI PERSONA ALAN ALDO NUÑEZ DALLETO RUT: 16.299.830-7 DE CUALQUIER MODO POSIBLE AL IGUAL QUE DE OTROS PAÍSES. 
+
+11° PENSAR ES GRATIS, LAS NEURONAS NO SE GASTAN, EL TIEMPO DE VIDA DERROCHADO TORTURÁNDOME DE TODAS LAS FORMAS POSIBLES Y SOLO POR GUSTO, PLACER NUNCA LO PODRÁN DEVOLVER A MI PERSONA ALAN ALDO NUÑEZ DALLETO RUT: 16.299.830-7
+
+12° NUNCA LO OLVIDE, PERNOCTO EN CHILE, EN UNA PIEZA ESTOY DE ALLEGADO Y ADEMAS SEÑALO QUE LA PEOR EXPERIENCIA DEL MUNDO ES SER TORTURADO DE TODAS LAS FORMAS POSIBLES POR MIS PROPIOS FAMILIARES Y ADEMAS POR EL PAÍS EN EL CUAL PERNOCTO YA QUE DEBERÍA SER LO CONTRARIO. NO SOY ESPECIAL, TENGO SENTIMIENTOS, NECESIDADES, EMOCIONES, ETC COMO CUALQUIER PERSONA EN EL MUNDO NO PUEDO ILUSIONARME HASTA QUE SE CUMPLA TODO LO ESCRITO ANTERIORMENTE. LLEVAN AÑOS PERMITIENDO LA TORTURA EN CHILE SOLO POR GUSTO Y PLACER "2017-2018-2019-2020-2021-2022-2023-2024". QUERÍAN VENDERME COMO UN ESCLAVO Y AUN SIGO SIENDO TORTURADO CON LO PEOR DE LA HUMANIDA 24 HORAS AL DÍA. 
+
+13° SOLUCIÓN EMOCIONAL, SOLUCIÓN ECONÓMICA, JUSTICIA GLOBAL MUNDIAL EN TODO ÁMBITO.
+
+14° TODA PELÍCULA O SERIE QUE LUCRE Y/O UTILICE MI HISTORIA DE VIDA  ALAN ALDO NUÑEZ DALLETO RUT: 16.299.830-7 EN TODO ÁMBITO SIN MI CONSENTIMIENTO ESTIPULADO DE FORMA ESCRITA. TORTURA ECONÓMICA, TORTURA HISTÓRICA  INFRACCIÓN “copyright” A LOS DERECHOS DE AUTOR Y DERECHOS CONEXOS "2017-2018-2019-2020-2021-2022-2023-2024"​. ES LO MISMO QUE LUCRAR DE CUALQUIER MODO COPIANDO UTILIZANDO HE INTERPRETANDO CANCIONES SIN AUTORIZACIÓN DE SUS CREADORES.
+
+15° PUEDEN DEMANDARME A MI ALAN ALDO NUÑEZ DALLETO RUT: 16.299.830-7 POR EXTINGUIR UNA RAZA HUMANA CON CEREBRO DE ANIMAL. INFLUYE COMO MANIPULAN CON CUALQUIER MEDIO Y CON CUALQUIER MIERDA NEURONAL, CREAN SISMOS, VIRUS, PSICOLÓGICOS, SÁDICOS, SÁDICAS, MAQUIAVELICOS, MAQUEAVELICAS, PAYASOS, PAYASAS, GOLLUM, SANGUIJUELAS, PSICÓPATAS EMOCIONALES, PSICOPATÍAS SEXUALES, TORTURADORES ECONÓMICOS Y MUCHO MAS. FANÁTICOS DEL PLACER POR EL SUFRIMIENTO TORTURANDO Y MANIPULANDO. ETC. LA INTELIGENCIA ARTIFICIAL, TORTURAMARKETING. LES GRABE UN SUS NEURONAS MATEMÁTICAS PiD + C CON LA MIERDA NEURONAL QUE TIENEN DE FORMA NATURAL. TIENEN UN CURSO DE ACTUACIÓN PARA MANIPULAR 24 HORAS SÁDICOS, SÁDICAS, MAQUIAVELICOS, MAQUEAVELICAS, PAYASOS, PAYASAS, GOLLUM, SANGUIJUELAS, PSICÓPATAS EMOCIONALES, PSICOPATÍAS SEXUALES, TORTURADORES ECONÓMICOS Y MUCHO MAS. "2017-2018-2019-2020-2021-2022-2023-2024". QUERÍAN VENDERME COMO UN ESCLAVO Y AUN SIGO SIENDO TORTURADO CON LO PEOR DE LA HUMANIDA 24 HORAS AL DÍA. 
+
+ESTO LO ANALIZARE AYER Y ANTES DE AYER PARA COMPRENDELO MAÑANA O PASADO MAÑANA PARA ASÍ DARME CUENTA HOY. HAY COSAS QUE SE PERO NO QUIERO SABER
+
+![PROUCTOS Y SERVICIOS www.piaureo.com www.aiaureo.com www.diaureo.com www.pieureo.com](https://i.postimg.cc/0yK2mhr7/Video-La-UE-lanza-su-primer-Banco-de-Hidr-Ogeno.png)
+
+![PROUCTOS Y SERVICIOS www.piaureo.com www.aiaureo.com www.diaureo.com www.pieureo.com](https://i.postimg.cc/65q2HBwQ/Holy-www-pieureo-com-www-aiaureo-com-www-diaureo-com-www-piaureo-com.png
+
+![PROUCTOS Y SERVICIOS www.piaureo.com www.aiaureo.com www.diaureo.com www.pieureo.com](https://i.postimg.cc/Q9qcCDN2/www-piaureo-com-www-aiaureo-com-www-diaureo-com-03.jpg)
+
+![PROUCTOS Y SERVICIOS www.piaureo.com www.aiaureo.com www.diaureo.com www.pieureo.com](https://i.postimg.cc/8s03Zm42/www-piaureo-com-www-aiaureo-com-www-diaureo-com-01.jpg)
+
+![PROUCTOS Y SERVICIOS www.piaureo.com www.aiaureo.com www.diaureo.com www.pieureo.com](https://i.postimg.cc/GHfGHqrm/www-piaureo-com-www-aiaureo-com-www-diaureo-com-04.jpg)
+
+![PROUCTOS Y SERVICIOS www.piaureo.com www.aiaureo.com www.diaureo.com www.pieureo.com](https://aiaureo.com/wp-content/uploads/2023/09/Donate-dinero-abcde_01.png)
+
+![PROUCTOS Y SERVICIOS www.piaureo.com www.aiaureo.com www.diaureo.com www.pieureo.com](https://aiaureo.com/wp-content/uploads/2023/12/PASAPORTES-NUEVOS-MI-DINERO-IMAGEN-PERSONAL-LIMPIA-DE-LA-HISTORIA-DE-ALAN-ALDO-NUNEZ-DALLETO.-EL-TIEMPO-APREMIA.png)
+
+![PROUCTOS Y SERVICIOS www.piaureo.com www.aiaureo.com www.diaureo.com www.pieureo.com](https://i.postimg.cc/NMsbBtgk/piaureo-com-aiaureo-com-diaureo-com-La-Econonima-Falta-Espacio-Para-Construir-Casas-La-Suerte-01.png)
+
+![PROUCTOS Y SERVICIOS www.piaureo.com www.aiaureo.com www.diaureo.com www.pieureo.com](https://i.postimg.cc/0yK2mhr7/Video-La-UE-lanza-su-primer-Banco-de-Hidr-Ogeno.png)
+
+![PROUCTOS Y SERVICIOS www.piaureo.com www.aiaureo.com www.diaureo.com www.pieureo.com](https://i.postimg.cc/fbMpZ94k/Sin-titulo-SABES-LEER.png)
+
+![PROUCTOS Y SERVICIOS www.piaureo.com www.aiaureo.com www.diaureo.com www.pieureo.com](https://i.postimg.cc/8CyKSXBn/7-tragicomico-QUE-ES.png)
+
+![PROUCTOS Y SERVICIOS www.piaureo.com www.aiaureo.com www.diaureo.com www.pieureo.com](https://i.postimg.cc/d1y8x5WC/Alan-Aldo-Nunez-Dalleto-Holy-www-pieureo-com-www-aiaureo-com-www-diaureo-com-www-piaureo-com-Holy-JP.webp)
+
+![PROUCTOS Y SERVICIOS www.piaureo.com www.aiaureo.com www.diaureo.com www.pieureo.com](https://i.postimg.cc/D041RBBs/animales-carnivoros-ejemplos-Artificial-intelligence-piaureo-com-aiaureo-com-diaureo-com-alan-fechas.jpg)
+
+![PROUCTOS Y SERVICIOS www.piaureo.com www.aiaureo.com www.diaureo.com www.pieureo.com](https://i.postimg.cc/YjcQ7YsP/Carnet-Alan-Aldo-Nunez-Dalleto-www-piaureo-com-www-aiaureo-com-www-diaureo-com.jpg)
+
+![PROUCTOS Y SERVICIOS www.piaureo.com www.aiaureo.com www.diaureo.com www.pieureo.com](https://i.postimg.cc/TwgD9pwq/EMANCIPADO-DEL-PAIS-CHILE-PATRIA-POTESTAD-QUE-ME-TORTURA-POR-GUSTO-PLACER-ADEMAS-DE-LUCRAR-GANAR-M.png)
+
+![PROUCTOS Y SERVICIOS www.piaureo.com www.aiaureo.com www.diaureo.com www.pieureo.com](https://i.postimg.cc/CMRtF02C/H2-es.jpg)
+
+![PROUCTOS Y SERVICIOS www.piaureo.com www.aiaureo.com www.diaureo.com www.pieureo.com](https://i.postimg.cc/vH9NVzbc/IMG-20231215-183902882.jpg)
+
+![PROUCTOS Y SERVICIOS www.piaureo.com www.aiaureo.com www.diaureo.com www.pieureo.com](https://i.postimg.cc/J4mbpcjy/IMG-20231215-185121259.jpg)
+
+![PROUCTOS Y SERVICIOS www.piaureo.com www.aiaureo.com www.diaureo.com www.pieureo.com](https://i.postimg.cc/zfDt4YWg/IMG-20231215-185238425.jpg)
+
+![PROUCTOS Y SERVICIOS www.piaureo.com www.aiaureo.com www.diaureo.com www.pieureo.com](https://i.postimg.cc/tRF3dmnQ/IMG-20231215-185751916.jpg)
+
+![PROUCTOS Y SERVICIOS www.piaureo.com www.aiaureo.com www.diaureo.com www.pieureo.com](https://i.postimg.cc/0y0Xty6v/IMG-20231215-185902186.jpg)
+
+![PROUCTOS Y SERVICIOS www.piaureo.com www.aiaureo.com www.diaureo.com www.pieureo.com](https://i.postimg.cc/Sxht7MxV/IMG-20240131-145824026-MF-PORTRAIT.jpg)
+
+![PROUCTOS Y SERVICIOS www.piaureo.com www.aiaureo.com www.diaureo.com www.pieureo.com](https://i.postimg.cc/s2SxFbr3/LA-EVOLUCION-HUMANA-www-piaureo-com-www-diaureo-com-www-aiaureo-com-www-pieureo-com.jpg)
+
+![PROUCTOS Y SERVICIOS www.piaureo.com www.aiaureo.com www.diaureo.com www.pieureo.com](https://i.postimg.cc/3r9RHgP0/SOLUCION-A-LA-HAMBRUNA-MUNDIAL-REGIONAL-www-pieureo-com-www-aiaureo-com-www-diaureo-com-www-piaureo.png)
+
+![PROUCTOS Y SERVICIOS www.piaureo.com www.aiaureo.com www.diaureo.com www.pieureo.com](https://i.postimg.cc/N0V6D3xY/www-pieureo-com-www-aiaureo-com-www-diaureo-com-www-piaureo-com.png)
+
+![PROUCTOS Y SERVICIOS www.piaureo.com www.aiaureo.com www.diaureo.com www.pieureo.com](https://i.postimg.cc/XJHTs7zq/COMOMA-1.png)
+
+![PROUCTOS Y SERVICIOS www.piaureo.com www.aiaureo.com www.diaureo.com www.pieureo.com](https://i.postimg.cc/fbMpZ94k/Sin-titulo-SABES-LEER.png)
+
+![PROUCTOS Y SERVICIOS www.piaureo.com www.aiaureo.com www.diaureo.com www.pieureo.com](https://i.postimg.cc/0yK2mhr7/Video-La-UE-lanza-su-primer-Banco-de-Hidr-Ogeno.png)
+
+
+
+
 ![PROUCTOS Y SERVICIOS www.piaureo.com www.aiaureo.com www.diaureo.com www.pieureo.com](https://raw.githubusercontent.com/piaureo/PROUCTOS-Y-SERVICIOS-www.piaureo.com-www.aiaureo.com-www.diaureo.com-www.pieureo.com/main/EL%20KARMA%20DEVOLVER%20LO%20LUCRADO%20CON%20LAS%20IDEAS%20INTELIGENCIA%20DE%20ALAN%20ALDO%20NUNEZ%20DALLETO%20ADEMAS%20DE%20EMANCIPARLO%20DE%20CHILE%20Y%20SU%20FAMILIA%20TAMBIEN%20DEJANDO%20POR%20ESCRITO%20LA%20TORTURA%20EN%20EL%20TIEMPO%20REALIZADA%20CHILE%20(2)(1).jpg)
 
 ![PROUCTOS Y SERVICIOS www.piaureo.com www.aiaureo.com www.diaureo.com www.pieureo.com](https://raw.githubusercontent.com/piaureo/PROUCTOS-Y-SERVICIOS-www.piaureo.com-www.aiaureo.com-www.diaureo.com-www.pieureo.com/main/ROBAR%20LEGALMENTE%20CUALQUIER%20GANANCIA%20POR%20CUALQUIER%20MEDIO%20A%20CHILE%20ASTA%20QUE%20NO%20EMANCIPEN%20A%20ALAN%20ALDO%20NUNEZ%20DALLETO%20Y%20SU%20FAMILIA%20POR%20EL%20TIEMPO%20Y%20MONTOS%20QUE%20SEAN%20NECESARIOS.jpg)
