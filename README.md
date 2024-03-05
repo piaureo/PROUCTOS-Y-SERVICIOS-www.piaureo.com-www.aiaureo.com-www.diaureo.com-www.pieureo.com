@@ -114,7 +114,6 @@ ESTO ES ANTIGNORANTES VIVO DE ALLEGADO EN UNA PIEZA EN PASAJE LOS HUILLES #256 P
 
 ESTO LO ANALIZARE AYER Y ANTES DE AYER PARA COMPRENDELO MAÑANA O PASADO MAÑANA PARA ASÍ DARME CUENTA HOY. HAY COSAS QUE SE PERO NO QUIERO SABER
 
-![PROUCTOS Y SERVICIOS www.piaureo.com www.aiaureo.com www.diaureo.com www.pieureo.com](https://i.postimg.cc/0yK2mhr7/Video-La-UE-lanza-su-primer-Banco-de-Hidr-Ogeno.png)
 
 ![PROUCTOS Y SERVICIOS www.piaureo.com www.aiaureo.com www.diaureo.com www.pieureo.com](https://i.postimg.cc/65q2HBwQ/Holy-www-pieureo-com-www-aiaureo-com-www-diaureo-com-www-piaureo-com.png)
 
